@@ -1,0 +1,2 @@
+Soutěž - Skolní kolo
+
